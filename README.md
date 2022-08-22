@@ -3,7 +3,9 @@
 Features :
 
 •	Completion of project will no more get delay as the employer quotes the project completion time.
+
 •	A major plus of this application is that there is no limit to how much you can earn. There is no law that dictates the number of projects one can work on at the same time simultaneously. That way, you stay more productive while mining more cash.
+
 •	Based on the project domain, the projects are well categorized in a user-friendly manner.
 
 
